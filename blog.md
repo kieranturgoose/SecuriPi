@@ -1,0 +1,1 @@
+https://rkprojectblogs.wordpress.com/
